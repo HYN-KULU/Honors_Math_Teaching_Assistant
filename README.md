@@ -10,4 +10,4 @@ It's really a joy to be the Teaching Assistant for VV186, Kulu worked with dsz, 
 
 All rights reserved: Kulu
 
-But, future VV186 Taa can use them freely ~
+But, future VV186 Taa can use them freely !
